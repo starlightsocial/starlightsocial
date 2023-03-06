@@ -1,5 +1,5 @@
 # 💫 About Starlight:
- :iphone: Starlight Music Stream App Cool UI/UX Design<br> ✉ Support: starlightxconfirm@hotmail.com
+ 💬 Starlight Music Stream App Cool UI/UX Design<br> ✉ Support: starlightxconfirm@hotmail.com
 
 
 ## 🌐 Socials:
